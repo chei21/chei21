@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @chei21
+- 👀 I’m interested in hardware, software and networks
+- 🌱 I’m currently learning about the world of computers
+- 🌳 I want to build something awesome one day
